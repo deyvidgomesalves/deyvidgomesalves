@@ -1,4 +1,5 @@
 ### Olá! Eu sou o Deyvid Gomes 🙋‍♂️
+##Estudante de Engenharia da Computação e apaixonado por explorar o mundo da tecnologia para criar soluções impactantes. Acredito que a inovação é o caminho para transformar o futuro, e busco constantemente desenvolver habilidades que façam a diferença.
 
 ##Contatos📱
 
